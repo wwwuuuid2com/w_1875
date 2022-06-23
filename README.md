@@ -1,0 +1,12 @@
+# w_1875
+麻豆影视/麻豆视频/影视H5+APP系统/MDYS08
+<br/></br>
+[下载地址](https://www.uuid2.com/1875.html "下载地址")
+<br/></br>
+<h3>源码简介：</h3>
+<p>说在最前面的，影视类的东西，请勿用于违规内容的制作，一切因为下载人/使用人擅自更改内容方向引起的责任，均由下载人/使用人自行承担！<p>
+<p>一键执行新装的版本，内置火车头等。实跑了下，很不错啊，就真的是很不错，功能全面，UI漂亮，运行流畅。真是不错的东西。<p>
+<p>需要安装SG11扩展（支持PHP5.6-7.3）<p>
+<p>演示地址：http://ys08.madouym.com<p>
+<h3>截图：</h3>
+<img src="https://www.uuid2.com/wp-content/uploads/img/202112/fd7b5ca475.png" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431857737193.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431858426773.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431858942551.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431859359685.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431859178384.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431860842332.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431861964418.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431861283875.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431862695685.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431862705270.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431863904126.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431863626070.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431864587403.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431864934652.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431865263059.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431865836539.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08"><img src="https://www.uuid2.com/wp-content/uploads/img/20211202/1638431866223926.webp" alt="麻豆影视/麻豆视频/影视H5+APP系统/MDYS08">
